@@ -1,5 +1,8 @@
 
 
+
+هايلوكس نسخه (خويلد) https://www.modland.net/beamng.drive-mods/cars/toyota-hilux-3.html#google_vignette
+
 هايلوكس 2015 https://www.mediafire.com/file/k0vb5wpid63wdux/taskHulix(sold_copy).zip/file
 
 كامري 2025 اصدار (خويلد) https://www.mediafire.com/file/8pmdkprttiivrgq/Camry_2025_KHwylD.rar/file
@@ -289,4 +292,3 @@ https://www.dropbox.com/scl/fi/fqz0w4tqnc76c07ohrak4/ToyotaCorollaE210.zip?rlkey
  https://www.dropbox.com/scl/fi/56x7phngwpmwnhpn4kc1y/2023_Lexus_LX500_V2.zip?rlkey=d4mnc7fpio0yhnyu3ec4c7va1&st=7zes3lsi&dl=1 فورد اكسبدشن https://www.dropbox.com/scl/fi/jlvkyxqqwr8ogultyyydo/M7_expedition14.zip?rlkey=etro0stkt9h86a1y8l51pyylh&st=xy89fpbm&dl=1 مكسيما ‏https://www.dropbox.com/scl/fi/av4qfb47v2hc73j9usvvy/MaximaA332008.zip?rlkey=aunaw9a5tb98m0i6dazq75t2f&st=zsgug39f&dl=1 ماب تصوير https://www.dropbox.com/scl/fi/4s8izol3onlqrlc1lcjyp/showroom17_repo.zip?rlkey=s17em6u0pkhv7myvlj8t96rha&st=r4i9llw1&dl=1 1ماب تصوير ‏https://www.dropbox.com/scl/fi/pp8fph4ftvf3ppscmoahr/L95xp-zmv-Garage-ShowRoom.zip?rlkey=w3p3x3mxia36yp8dfliyq3231&st=g0l1fo42&dl=1 تاهو٢٠٠٦ https://www.dropbox.com/scl/fi/0doqc9dawdx4ldajpo3et/2006-Chevrolet-Tahoe.zip?rlkey=9ade8dkgteisld346woya0ro3&st=hznh4g6s&dl=1 سيرا ٢٠٢٢ ‏https://www.dropbox.com/scl/fi/n67mfcjq24ji9v1c336ah/392Mafia_gmcsierra_updated.zip?rlkey=qhvypbxm54ewqj79wjqrnx9me&st=mnipbxhx&dl=1 يوكن https://www.dropbox.com/scl/fi/2p99roxsit724ag5kxzys/taskyukonv3-sold_copy.zip?rlkey=mzcz6dk96rzjw4fu1as4x5ch3&st=wzbwh4vs&dl=1 جينسس١٧ خالعه https://www.dropbox.com/scl/fi/vlo7xqbqc3i26difbpwub/.zip?rlkey=vh49bfy4jktjgqevp6rrh15dm&st=dij8slx7&dl=1هلي على مستوى🧤😎 https://www.dropbox.com/scl/fi/lsiobbceuctds15bmjii0/Abo3Zmh_hilux_v1.zip?rlkey=ys6pvhsp63rxrmouvsfgz87jg&st=mgjou4uq&dl=1 لكزس اصدار (الفهمي) https://www.dropbox.com/scl/fi/5ry9arndyjit7issja8vb/lx570.zip?rlkey=3owjbd6bo9xathqf1h6esiy8k&st=txblv1ig&dl=1
 طبعا كل المواتر من مواقع وسيرفرات مونها نود لاند وسيرفرات ديسكورد وفيه سيرفرات نسيت اسمها ولا كان حطيت حقوقها🤍
 وبس انتضرو التحديثات
-
