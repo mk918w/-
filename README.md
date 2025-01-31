@@ -1,5 +1,8 @@
 
 
+اكورد 2004 https://modsfire.com/Y5nWZPGdy897Jlr
+
+يارس 2016 https://modsfire.com/W0FTj271ND66Wt9
 
 هايلوكس نسخه (خويلد) https://www.modland.net/beamng.drive-mods/cars/toyota-hilux-3.html#google_vignette
 
@@ -7,7 +10,7 @@
 
 كامري 2025 اصدار (خويلد) https://www.mediafire.com/file/8pmdkprttiivrgq/Camry_2025_KHwylD.rar/file
 
-كوريلا 2020 https://www.modland.net/download/275327
+كورلا 2020 https://www.modland.net/download/275327
 
 ربع اصدار (الشيخ) https://modsfire.com/E52Uczqa2Hm7BGW
 
